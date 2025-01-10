@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lgbrabander
 - 👀 I’m interested in life series.
-- 🌱 I’m currently learning coding.
+- 🌱 I’m currently learning stuff.
 - 💞️ I’m looking to collaborate on nothing atm.
 - 📫 How to reach me i dunno.
 - 😄 Pronouns: any 
